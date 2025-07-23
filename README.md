@@ -1,5 +1,5 @@
-Bienvenidos a Mackert23
+Hola! Soy Mackert23
 
-Tecnologias
+Me gusta la Tecnologia
 
 Contacto 
